@@ -4,4 +4,4 @@
 <div align="center">
 I like rain world and eat wires, I suggest reading my Rentry before interacting pls !
   <div align="center">
-https://rentry.co/utdzv4   ---  https://en.pronouns.page/@V2Cheese  ---  https://kellen.atabook.org/ 
+https://rentry.co/utdzv4   ------  https://kellen.atabook.org/ 
