@@ -2,6 +2,6 @@
 ![Bumbo 2](https://github.com/user-attachments/assets/eab6797d-5065-4521-a2db-8216375fa7d7)
 
 <div align="center">
-I like rain world and chew on wires, I suggest reading my Rentry before interacting pls !
+I like rain world and chew on wires, I suggest reading my Rentry/strawpage before interacting pls !
   <div align="center">
 https://rentry.co/utdzv4   ------  https://kellen.atabook.org/ 
