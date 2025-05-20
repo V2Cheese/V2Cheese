@@ -8,6 +8,10 @@
 <div align="center">
 I like rain world and chew on wires, I suggest reading my Rentry/strawpage before interacting pls !
   <div align="center">
-https://rentry.co/utdzv4   ៸៸៸៸៸៸៸៸៸៸៸៸៸៸៸៸៸៸៸៸៸៸៸៸   https://kellen.atabook.org/ 
+(https://rentry.co/utdzv4)   ៸៸៸៸៸៸៸៸៸៸៸៸៸៸៸៸៸៸៸៸៸៸៸៸   https://kellen.atabook.org/ 
+  <div align="center">
+      https://prov2dence.straw.page/
     
+  <div align="center">
+      
 ![technology](https://github.com/user-attachments/assets/9e9222c2-55d6-4821-8c3f-f62010468701)
