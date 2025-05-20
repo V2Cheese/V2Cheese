@@ -6,7 +6,7 @@
 
 
 <div align="center">
-I like rain world and chew on wires, I suggest reading my Rentry/strawpage before interacting pls !
+I like rain world and chewing on wires, I suggest reading my Rentry/strawpage before interacting pls !
   <div align="center">
 (https://rentry.co/utdzv4)   ៸៸៸៸៸៸៸៸៸៸៸៸៸៸៸៸៸៸៸៸៸៸៸៸   https://kellen.atabook.org/ 
   <div align="center">
