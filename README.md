@@ -1,7 +1,13 @@
-![image](https://github.com/user-attachments/assets/cdae7af0-efee-4e6f-914b-6337a5256ee9)- - - - - - GIF by: @J4WTRAP - - - - - - - - - - - -
-![Bumbo 2](https://github.com/user-attachments/assets/eab6797d-5065-4521-a2db-8216375fa7d7)
+<div align="center">
+  
+![image](https://github.com/user-attachments/assets/cdae7af0-efee-4e6f-914b-6337a5256ee9)
+
+![hello chat prov](https://github.com/user-attachments/assets/898873d0-5c0f-4ec0-95b7-a5a7b12a6970)
+
 
 <div align="center">
 I like rain world and chew on wires, I suggest reading my Rentry/strawpage before interacting pls !
   <div align="center">
-https://rentry.co/utdzv4   ------  https://kellen.atabook.org/ 
+https://rentry.co/utdzv4   ៸៸៸៸៸៸៸៸៸៸៸៸៸៸៸៸៸៸៸៸៸៸៸៸   https://kellen.atabook.org/ 
+    
+![technology](https://github.com/user-attachments/assets/9e9222c2-55d6-4821-8c3f-f62010468701)
