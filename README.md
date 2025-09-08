@@ -8,6 +8,7 @@
 
 
 <div align="center">
+  gif credit: @kanderwund
 I like rain world and chewing on wires, I suggest reading my Rentry/strawpage before interacting pls !
   <div align="center">
 <img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/22623956-b5c6-472a-b214-d2b3cc545804" />
