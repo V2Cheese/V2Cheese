@@ -9,14 +9,8 @@
 
 
 <div align="center">
-I like rain world and chewing on wires, I suggest reading my Rentry/strawpage before interacting pls !
+<img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/22623956-b5c6-472a-b214-d2b3cc545804" /> I like rain world and chewing on wires, I suggest reading my strawpage before interacting pls ! <img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/252694de-4f72-4c5c-bd55-acf061d90003" />
   <div align="center">
-<img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/22623956-b5c6-472a-b214-d2b3cc545804" />
-https://rentry.co/utdzv4   ៸៸៸៸៸៸៸៸៸៸៸៸៸៸៸៸៸៸៸៸៸៸៸៸   https://kellen.atabook.org/ <img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/252694de-4f72-4c5c-bd55-acf061d90003" />
 
-  <div align="center">
-      https://prov2dence.straw.page/
-    
-  <div align="center">
       
 ![technology](https://github.com/user-attachments/assets/9e9222c2-55d6-4821-8c3f-f62010468701)
