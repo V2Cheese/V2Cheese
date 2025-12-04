@@ -9,10 +9,10 @@
 
 
 <div align="center">
-<img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/22623956-b5c6-472a-b214-d2b3cc545804" /> I like rain world and chewing on wires, I suggest reading my strawpage before interacting pls ! <img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/252694de-4f72-4c5c-bd55-acf061d90003" />
+<img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/22623956-b5c6-472a-b214-d2b3cc545804" /> I like rain world and chewing on wires, more info can be found on my strawpage ! <img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/252694de-4f72-4c5c-bd55-acf061d90003" />
   <div align="center">
 
-  <div align="center">My strawpage if full of gifs and could lag for some people, sorry in advance lol. i'm planning on making an alt version that isn't too crowded :p<div align="center">
+  <div align="center">My strawpage if full of gifs and bullshit, this can make it VERY laggy in some devices, mainly on mobile. Sorry!  i'm planning on making an alt version soon that is less crowded <div align="center">
 
 <div align="center"> I'm off tab most of the time, whisper me if you need to say something :p <div align="center">
       
