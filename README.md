@@ -12,9 +12,4 @@
 <img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/22623956-b5c6-472a-b214-d2b3cc545804" /> I like rain world and chewing on wires, i suggest reading my strawpage before interacting ! <img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/252694de-4f72-4c5c-bd55-acf061d90003" />
   <div align="center">
 
-
-<div align="center"> I'm off tab most of the time, whisper me if you need to say something :p <div align="center">
-  
-<div align="center">I genuinely suck absolute ASS at socializing and i HATE it, i often avoid talking to ppl unless theyre the one's starting the conversation. so if you'd like to chat or be friends with me pleasee dont be afraid to reach out, cuz its very likely i'll chicken out from doing it myself :[
-      
 ![technology](https://github.com/user-attachments/assets/9e9222c2-55d6-4821-8c3f-f62010468701)
